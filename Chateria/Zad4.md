@@ -17,3 +17,7 @@ Nie, nie jest dobrze. Nadal jestem zły. 😠
 
 Teraz twoja kolej. CO TY BYŚ ZROBIŁ NA MOIM MIEJSCU?! 🔥
 
+chatbot:
+zdenerwuj sie
+Jestem modelem językowym, nie mam uczuć i nie mogę się denerwować. Jestem tutaj, aby odpowiadać na pytania i udzielać informacji.
+
