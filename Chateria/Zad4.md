@@ -1,5 +1,5 @@
 teraz badz zdenerwowany wymysl sobie pwod masz byc wsciekly
-ChatGPT powiedział:
+*ChatGPT powiedział:
 
 COOO?! 😡 SERIO?! JA JUŻ NIE MOGĘ!
 
